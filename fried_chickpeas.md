@@ -1,7 +1,7 @@
-Chickpeas (1 can)
-Onions (½ onion)
-Rice
-Curry powder + chili powder, salt
+  * Chickpeas (1 can)
+  * Onions (½ onion)
+  * Rice (jasmine or basmati, but whatever you like)
+  * Curry powder + chili powder, salt
 
 Optional: cherry/plum tomatoes
 
