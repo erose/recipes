@@ -1,14 +1,14 @@
-  * rice stick noodles
+  * rice stick noodles (half a package; i.e. 8oz)
   * oil (canola is fine)
   * fish sauce (¼ cup)
   * honey (¼ cup)
   * rice vinegar (2 tablespoons)
   * scallions
-  * garlic cloves
+  * garlic cloves (2)
   * eggs (2)
   * peanuts
   * basil leaves (optional)
-  * limes
+  * limes (1)
   * tomatoes (optional)
 
 Boil some water. Pour it over the noodles, enough to cover, and put the lid on. It will cook them. 
