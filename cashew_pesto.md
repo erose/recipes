@@ -7,4 +7,4 @@
 
 Blend.
 
-Serve with pasta and diced pepper
+Serve with pasta and diced pepper.
