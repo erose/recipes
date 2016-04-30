@@ -1,5 +1,5 @@
   * 1 cup uncooked sushi rice
-  * 1 cup water
+  * 2 cup water
   * 1 tablespoon rice vinegar
   * 1 tablespoon sugar
   * 1 tablespoon salt
