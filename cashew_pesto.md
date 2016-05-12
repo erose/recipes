@@ -3,7 +3,7 @@
   * Olives (7 or 8)
   * Parmesan cheese (take a healthy slice & grate it up)
   * Garlic (2 cloves)
-  * Dash of olive oil.
+  * Dash of olive oil. (See https://github.com/erose/recipes/issues/1).
 
 Blend.
 
