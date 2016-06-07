@@ -3,9 +3,9 @@
 * Oil (canola is fine)
 * Cashews
 * Assorted vegetables (any of bell peppers, snow peas, bok choy, bamboo shoots)
-* Garlic
-* Ginger
-* Scallions
+* Garlic (2 cloves)
+* Ginger (1 medium root, estimated 4 inches)
+* Scallions (2 big stalks)
 * Basil leaves
 
 To prepare, mince the garlic and cut the ginger into very small bits. Cut the scallions into 1/2 inch pieces.
