@@ -1,3 +1,5 @@
+# Enchilada Sauce
+
 * Canola oil (1 tablespoon)
 * Flour (1 tablespoon)
 * Chili powder or paprika (2 tablespoons)
