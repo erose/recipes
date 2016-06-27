@@ -1,7 +1,7 @@
   * rice stick noodles (half a package; i.e. 8oz)
   * oil (canola is fine)
-  * fish sauce (¼ cup)
-  * honey (¼ cup)
+  * fish sauce (1/4 cup)
+  * honey (1/8 cup)
   * rice vinegar (2 tablespoons)
   * scallions
   * garlic cloves (2)
