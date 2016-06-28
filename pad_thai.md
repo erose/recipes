@@ -11,12 +11,12 @@
   * limes (1)
   * tomatoes (optional)
 
-Boil some water. Pour it over the noodles, enough to cover, and put the lid on. It will cook them. 
+Boil some water. Pour it over the noodles, enough to cover, and put the lid on. It will cook them.
 
-Meanwhile, combine fish sauce, honey and rice vinegar in a skillet and bring to a simmer. Cut a lime and squirt some juice in as well. Set aside.
+Chop the garlic cloves and slice the scallions into chunks.
 
-Chop the garlic cloves. Start heating the oil in another skillet. When it’s hot, add scallions (sliced into chunks). Then add garlic and eggs. Stir the eggs fiercely to scramble them as they cook. (Optional: add tomato slices).
+Meanwhile, combine fish sauce, honey and rice vinegar in a skillet and bring to a simmer. Cut a lime and squirt some juice in as well. Put in the garlic cloves and scallions and simmer. After a few minutes, make a pocket in one corner of the pan and add the eggs. Stir them fiercely to scramble them.
 
-Meanwhile, bring the sauce up to a simmer again. When the eggs are done, add the noodles and the sauce to their pan. Stir to coat the noodles with sauce, and let the water boil away. Squirt some more lime in if it needs it.
+Add the noodles. Stir to coat the noodles with sauce, and let the water boil away. Squirt some more lime in if it needs it.
 
 Before serving, add chopped basil leaves and crushed peanuts.
