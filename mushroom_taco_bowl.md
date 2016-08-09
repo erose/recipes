@@ -7,4 +7,4 @@
 * Cilantro (to taste; optional)
 * Salsa (to taste; pineapple salsa is good)
 
-Cube the avocado and chop the onion into tiny cubes. Slice the mushrooms lengthwise and fry them in olive oil. Mix everything in a bowl, piping hot, with some salt!
+Make the black beans. Cube the avocado and chop the onion into tiny cubes. Slice the mushrooms lengthwise and fry them in olive oil. Mix everything in a bowl, piping hot, with some salt!
