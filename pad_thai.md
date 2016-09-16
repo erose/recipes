@@ -17,6 +17,6 @@ Chop the garlic cloves and slice the scallions into chunks.
 
 Meanwhile, combine fish sauce, honey and rice vinegar in a skillet and bring to a simmer. Cut a lime and squirt some juice in as well. Put in the garlic cloves and scallions and simmer. After a few minutes, make a pocket in one corner of the pan and add the eggs. Stir them fiercely to scramble them.
 
-Add the noodles. Stir to coat the noodles with sauce, and let the water boil away. Squirt some more lime in if it needs it.
+Strain the noodles to remove water, then add them to the pan with the sauce. Stir to coat the noodles with sauce, and let the remaining water boil away. Squirt some more lime in if it needs it.
 
 Before serving, add chopped basil leaves and crushed peanuts.
