@@ -1,6 +1,6 @@
 * 1 butternut squash
 
-Preheat over to 400F.
+Preheat oven to 400F.
 
 Slice the squash into quarters. Peel away the outer skin. Also peel away the lighter-colored inner skin until what's left is deep orange. Cut into 1-inch cubes, drizzle with olive oil. Add some good spices (???).
 
