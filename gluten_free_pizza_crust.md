@@ -2,7 +2,7 @@
   * 1 tsp salt
   * ½ tsp baking powder
   * 2 tbsp sugar
-  * 1 packet yeast
+  * 1 packet yeast (2 + 1/4 tbsp)
   * ¾ cup warm water
 
 Preheat oven to 350 F.
