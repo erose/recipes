@@ -5,9 +5,10 @@
   * honey or sugar
   * soy sauce
   * fish sauce
-  * 1/3 cup chicken broth or water
+  * ⅓ cup chicken broth or water
   * 1 handful of basil leaves
  
+
  Saute the shallots and garlic in oil for 1-2 minutes. Add the chicken and cook for an additional 2 minutes.
  
  Add 2 teaspoons of honey/sugar, 2 tablespoons of soy sauce, and 1 tablespoon of fish sauce. Stir-fry for another minute.
