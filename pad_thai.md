@@ -8,7 +8,7 @@
   * eggs (2)
   * peanuts
   * basil leaves (optional)
-  * limes (1)
+  * limes (1 lime; 2 tbsp lime juice)
   * tomatoes (optional)
 
 Boil some water. Pour it over the noodles, enough to cover, and put the lid on. It will cook them.
