@@ -6,6 +6,6 @@
   * Chili powder
   * Onion powder (a little)
   * Mustard powder (a little)
-  * Lime (one half)
+  * Lime (one half; 1 tbsp juice)
 
 Put the ingredients together in a skillet w/some canola oil. Fry. Squeeze lime over it.
