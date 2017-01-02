@@ -5,7 +5,7 @@
   * honey or sugar
   * soy sauce
   * fish sauce
-  * ⅓ cup chicken broth or water
+  * 1/3 cup chicken broth or water
   * 1 handful of basil leaves
  
 
