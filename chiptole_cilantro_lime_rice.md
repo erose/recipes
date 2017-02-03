@@ -15,6 +15,6 @@ Simmer, covered for 15-20 minutes, or until all water is absorbed.
 
 Turn off heat. Leave it covered for 30 minutes. It may be very important that you don't peek.
 
-Mix salt and juice of key lime together until salt is dissolved. Pour it over rice, fluff with a fork. 
+Mix salt and lime juice together until salt is dissolved. Pour it over rice, fluff with a fork. 
 
 Sprinkle in cilantro, and toss well to evenly coat with cilantro and lime mixture.
