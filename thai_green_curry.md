@@ -3,7 +3,8 @@
   * mushrooms
   * scallions
   * green beans
-  * half a pepper
+  * 1 pepper
+  * 1 onion
   * fish sauce (2 tsp)
   * basil leaves
   * 1 can (400ml) coconut milk
