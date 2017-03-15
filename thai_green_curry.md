@@ -10,7 +10,7 @@
   * lime juice (2 tsp)
   * oil (canola is fine)
  
- Chop the garlic into little pieces and saute it in oil for a few seconds, just until it turns golden brown. Mix in the curry paste. Saute for a bite more. Mix in the fish sauce. Pour in the coconut milk and get it boiling.
+ Chop the garlic into little pieces and saute it in oil for a few seconds, just until it turns golden brown. Mix in the curry paste. Saute for a bit more. Mix in the fish sauce. Pour in the coconut milk and get it boiling.
  
  After the mixture is boiling over, put in the vegetables. Add the lime juice. Basil goes in last. Make sure they don't get too overcooked.
  
