@@ -1,11 +1,11 @@
   * 1 clove garlic
-  * 1 tbsp Thai green curry paste
+  * 1.5 tbsp Thai green curry paste
   * mushrooms
   * scallions
   * green beans
   * 1 pepper
   * 1 onion
-  * fish sauce (2 tsp)
+  * fish sauce (1.5 tbsp)
   * basil leaves
   * 1 can (400ml) coconut milk
   * lime juice (2 tsp)
