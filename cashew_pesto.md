@@ -5,6 +5,6 @@
   * Garlic (2 cloves)
   * Dash of olive oil. (can't hurt).
 
-Blend.
+Blend the garlic by itself first. Then the cashews and olives (blend again). Then add the basil and blend again.
 
 Serve with pasta and diced pepper.
