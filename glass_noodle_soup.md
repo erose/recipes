@@ -1,17 +1,17 @@
 Ingredients:
 
-2 ounces uncooked bean threads (cellophane noodles) 
-3 (14.5 ounce) cans Chicken Broth 
-1 large clove garlic, minced 
-1 tablespoon thin strips fresh ginger root 
-4 2-inch pieces fresh lemongrass
-2 skinless, boneless chicken breast halves, cut into strips
-2 tablespoons lime juice
-2 tablespoons fish sauce
-1 jalapeno pepper, cut into thin slices
-7 baby bella mushrooms, sliced
-2 scallions, sliced
-1/4 cup chopped fresh cilantro
+  * 2 ounces uncooked bean threads (cellophane noodles) 
+  * 3 (14.5 ounce) cans Chicken Broth 
+  * 1 large clove garlic, minced 
+  * 1 tablespoon thin strips fresh ginger root 
+  * 4 2-inch pieces fresh lemongrass
+  * 2 skinless, boneless chicken breast halves, cut into strips
+  * 2 tablespoons lime juice
+  * 2 tablespoons fish sauce
+  * 1 jalapeno pepper, cut into thin slices
+  * 7 baby bella mushrooms, sliced
+  * 2 scallions, sliced
+  * 1/4 cup chopped fresh cilantro
 
 Method:
 Soak the bean threads in a large bowl of hot water until soft, about 15 minutes; drain and cut into bite-size lengths. 
