@@ -1,7 +1,7 @@
   * 2 cups gluten free flour
   * 1 tsp salt
   * ½ tsp baking powder
-  * 1 tbsp sugar
+  * 2 tbsp sugar
   * 1 packet yeast (2 + 1/4 tsp)
   * ¾ cup warm water
   * olive oil
