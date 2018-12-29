@@ -1,9 +1,9 @@
 Ingredients:
 
- - 3 cups chickpeas
- - 2 medium-sized potatoes
- - 1.5 tbsp tamarind paste
- - lemon juice
+ - 2 cups chickpeas
+ - 1 medium-size potatoes
+ - 3 tbsp tamarind paste
+ - lemon juice (amount in 1/2 lemon)
  - 3/4 cup red onion
  - some amount of cilantro
  - small jalapeno pepper
@@ -16,5 +16,5 @@ Ingredients:
 
 Directions:
 
-1. Boil potatoes until knife tender. When slightly cool, peel and dice.
+1. Boil potato until knife tender. When slightly cool, peel and dice.
 2. Combine everything into a bowl and drizzle tamarind mixture over it. Mix well!
