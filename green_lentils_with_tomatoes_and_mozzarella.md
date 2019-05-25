@@ -6,6 +6,7 @@ Serves 4
 * olive oil
 * salt
 * pepper
+* some dill
 * 1.3 cups green lentils
 * 1 clove garlic
 * fresh mozzarella
