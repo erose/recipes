@@ -1,7 +1,7 @@
 ## Green lentils with tomatoes and mozzarella
 Serves 4
 
-* 5 plum tomatoes
+* 5 plum or roma tomatoes
 * thyme
 * olive oil
 * salt
