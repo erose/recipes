@@ -5,7 +5,7 @@
   * 1 cup long grain white rice
   * 2 cups water
 
-Sautee the rice in oil until almost translucent.
+Sautee the rice in oil.
 
 Add water, bring to a boil.
 
