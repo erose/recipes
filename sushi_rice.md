@@ -2,7 +2,7 @@
   * 2 cup water
   * 1 tablespoon rice vinegar
   * 1 tablespoon sugar
-  * 1 tablespoon salt
+  * 2 teaspoons salt
 
 Rinse the dry rice with water, pouring off the cloudy water, two or three times. Then cook the rice ordinarily.
 
