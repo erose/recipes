@@ -4,7 +4,7 @@ https://cooking.nytimes.com/recipes/1019681-cheesy-white-bean-tomato-bake
   - 1/4  cup extra-virgin olive oil
   - 3 fat garlic cloves, thinly sliced
   - 3 tablespoons tomato paste
-  - 2 (15-ounce) cans white beans (such as cannellini or Great Northern) or chickpeas, drained and rinsed
+  - 2 (15-ounce) cans white beans (such as cannellini or Great Northern), drained and rinsed
   - 1/2  cup boiling water
   - Kosher salt and black pepper
   - 1/3 pound mozzarella, coarsely grated (about 1 + 1/3 cups)
