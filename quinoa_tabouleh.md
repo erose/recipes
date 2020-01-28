@@ -4,7 +4,7 @@ http://www.twoofakindcooks.com/quinoa-tabbouleh-feta-cheese/
 * 2 cups water
 * 1 cup uncooked quinoa
 * 2 teaspoons sea salt, divided
-* ¼ cup freshly squeezed lemon juice
+* 1 lemon's juice
 * 2 tablespoons olive oil
 * 1 cup thinly sliced green onions
 * 1 cup chopped fresh mint
