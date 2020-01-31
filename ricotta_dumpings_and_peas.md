@@ -1,16 +1,16 @@
 INGREDIENTS
-2 cups whole-milk ricotta
-2 large eggs
- Kosher salt and black pepper
-¾ cup all-purpose flour
-4 tablespoons unsalted butter
-2 tablespoons olive oil, plus more for serving
-1 large leek, white and light green parts only, thinly sliced
-1 bunch asparagus, woody ends removed, cut into 2-inch pieces
-2 cups shelled fresh or frozen peas
-3 cups pea shoots or leaves, thick stems removed
-¼ cup parsley or mint leaves, for serving
- Parmesan or pecorino, for serving
+  - 2 cups whole-milk ricotta
+  - 2 large eggs
+  - Kosher salt and black pepper
+  - ¾ cup all-purpose flour
+  - 4 tablespoons unsalted butter
+  - 2 tablespoons olive oil, plus more for serving
+  - 1 large leek, white and light green parts only, thinly sliced
+  - 1 bunch asparagus, woody ends removed, cut into 2-inch pieces
+  - 2 cups shelled fresh or frozen peas
+  - 3 cups pea shoots or leaves, thick stems removed
+  - ¼ cup parsley or mint leaves, for serving
+  - Parmesan or pecorino, for serving
 
 PREPARATION
 Bring a large pot of salted water to a boil.
