@@ -20,15 +20,10 @@ FOR THE NOODLES:
   - 1 red chile, such as Fresno, thinly sliced (optional)
   - 4 lime wedges, for serving
 
-Make the sauce: in a blender or bowl, combine all the ingredients and mix until smooth. It should be thick but pourable like barbecue sauce; add water as needed to thin it out.
+Make the sauce: in a bowl, combine all the ingredients and mix until smooth.
 
-Cook noodles for stir-frying according to the package directions; they should be slightly underdone. After draining, rinse well with cold water to stop the cooking. Toss noodles in 1 teaspoon coconut oil to prevent sticking.
-Cut scallions: Thinly slice the white parts, and cut the pale and dark green parts into 1-inch lengths.
+Cook noodles for stir-frying according to the package directions. Cut scallions: thinly slice the white parts, and cut the pale and dark green parts into 1-inch lengths.
 
-Heat a wok or large nonstick skillet over high. Add 2 tablespoons coconut oil and sprinkle in salt. Add brussels sprouts and sear, tossing occasionally, until browned and cooked through, about 5 minutes. Remove from the pan and set aside.
-
-In the same pan over high heat, heat remaining 1 tablespoon coconut oil. Add scallions and cook, stirring often, just until wilted, about 2 minutes. Add garlic, stir, then pour in about half the sauce and stir until bubbling.
-
-Add noodles and cook, tossing in the sauce until cooked through, about 2 minutes. Add the remaining sauce, cooked brussels sprouts, cilantro and bean sprouts, if using; toss to coat and heat through.
+Heat a wok or large nonstick skillet over high. Add 2 tablespoons coconut oil and sprinkle in salt. Add brussels sprouts and sear, tossing occasionally, until browned and cooked through, about 5 minutes. Add noodles, garlic and scallions and cook, tossing in the sauce until cooked through, about 2 minutes.
 
 Divide among plates. Garnish with peanuts, chile and lime wedges (if using) and serve immediately.
