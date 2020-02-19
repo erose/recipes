@@ -20,8 +20,7 @@ FOR THE NOODLES:
   - 1 red chile, such as Fresno, thinly sliced (optional)
   - 4 lime wedges, for serving
 
-PREPARATION
-Make the sauce: In a blender or bowl, combine all the ingredients and mix until smooth. It should be thick but pourable like barbecue sauce; add water as needed to thin it out.
+Make the sauce: in a blender or bowl, combine all the ingredients and mix until smooth. It should be thick but pourable like barbecue sauce; add water as needed to thin it out.
 
 Cook noodles for stir-frying according to the package directions; they should be slightly underdone. After draining, rinse well with cold water to stop the cooking. Toss noodles in 1 teaspoon coconut oil to prevent sticking.
 Cut scallions: Thinly slice the white parts, and cut the pale and dark green parts into 1-inch lengths.
