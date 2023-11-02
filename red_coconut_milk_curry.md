@@ -1,4 +1,4 @@
-  * Coconut milk (2 + 1/2 cup)
+  * Coconut milk
   * Red curry paste (1 tablespoon)
   * Fish sauce (3 tablespoons)
   * Brown sugar (1 tablespoon)
